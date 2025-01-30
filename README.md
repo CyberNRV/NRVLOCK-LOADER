@@ -1,4 +1,5 @@
-# 🚀 NRVLOCK Secure Loader  
+# 🚀 NRVLOCKSL Secure Loader  
+NRVLOCK IS A RANSOMWARE 
 FOR BUY PRÍVATE NRVLOCK DLL + LICENCE KEY CONTACT ME ON TELEGRAM @CyberNev or on HF @CyberNrv
 
 
