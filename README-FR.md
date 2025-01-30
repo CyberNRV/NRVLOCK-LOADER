@@ -1,6 +1,7 @@
 🚀 Chargeur Sécurisé NRVLOCK
 
 
+NRVLOCK IS A RANSOMWARE 
 FOR BUY PRÍVATE NRVLOCK DLL + LICENCE KEY CONTACT ME ON TELEGRAM @CyberNev or on HF @CyberNrv
 
 ⚠️ Avertissement
